@@ -1,5 +1,30 @@
 # raptorkit
 
-$\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh,,,}}$
+$\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh (and my strawpage),,,}}$
 
-$\small{\textsf{something you should know rn is i am a huge fan of yuta ..heh..}}$
+<details>
+
+<summary>𝒊𝒏𝒇𝒐 𝒐𝒇 𝒊𝒏𝒕 𝒏 𝒔𝒕𝒖𝒇𝒇</summary>
+int freely, im cool with it - unless i have dni/dniuf
+^^^ i do not friend others that quick btw
+
+i mightt come out rude, shy or nervous so uhhhhhhhh yah,,,
+i allow inspo also ! ! 
+
+</details>
+
+<details>
+
+<summary>𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔</summary>
+I LOVE LOVE LOVE JJK AND WARRIOR CATS
+other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, death note, aj.
+
+i also draw, animate and write stories haaaaa 
+i really REALLY like biology and paleontology
+
+
+my favorite character is yuta from jjk............... haaa....trustme (i also REALLY REALLY like yutamaki)
+
+</details>
+
+
