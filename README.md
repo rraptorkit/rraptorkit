@@ -18,6 +18,8 @@ i allow inspo also ! !
 <summary>𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔</summary>
 I LOVE LOVE LOVE JJK AND WARRIOR CATS
 other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, death note, aj.
+music i like is metal/nu-metal, romantic goth, experimental (like stomach book and gezebelle) and rock
+
 
 i also draw, animate and write stories haaaaa 
 i really REALLY like biology and paleontology
@@ -26,5 +28,7 @@ i really REALLY like biology and paleontology
 my favorite character is yuta from jjk............... haaa....trustme (i also REALLY REALLY like yutamaki)
 
 </details>
+
+check out strawpage for more info
 
 
