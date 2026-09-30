@@ -17,7 +17,7 @@ i allow inspo also ! !
 
 <summary>𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔</summary>
 I LOVE LOVE LOVE JJK AND WARRIOR CATS
-other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, death note, aj.
+other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, death note, aj.
 
 i also draw, animate and write stories haaaaa 
 i really REALLY like biology and paleontology
