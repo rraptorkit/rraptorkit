@@ -34,6 +34,6 @@ my favorite character is yuta from jjk............... haaa....trustme (i also RE
 
 </details>
 
-check out [strawpage](https://raptorkit.straw.page/) for more info
+check out [strawpage](https://raptorkitpt.straw.page/) for more info
 
 
