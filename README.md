@@ -2,7 +2,7 @@
 
 $\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh (and my strawpage),,,}}$
 
-<img width="140" src="https://komarev.com/ghpvc/?username=rraptorkit&label=Curses+exorcised&color=803b3b">
+
 
 <details>
 
