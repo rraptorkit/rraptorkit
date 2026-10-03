@@ -8,7 +8,7 @@ $\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh (and my strawpage),,,
 
 <summary>𝒊𝒏𝒇𝒐 𝒐𝒇 𝒊𝒏𝒕 𝒏 𝒔𝒕𝒖𝒇𝒇</summary>
 int freely, im cool with it - unless i have dni/dniuf
-^^^ i do not friend others that quick btw
+^^^ i do not friend others that quick btw , but sometimes i will if i think you r super cool ;O
 
 i mightt come out rude, shy or nervous so uhhhhhhhh yah,,,
 i allow inspo also ! ! 
