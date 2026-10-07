@@ -7,7 +7,7 @@ $\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh,,,}}$
 <details>
 
 <summary>𝒊𝒏𝒇𝒐 𝒐𝒇 𝒊𝒏𝒕 𝒏 𝒔𝒕𝒖𝒇𝒇</summary>
-int freely, im cool with it - unless i have dni/dniuf
+int freely, im cool with it, heck, encourage it! - unless i have dniuf
 ^^^ i do not friend others that quick btw , but sometimes i will if i think you r super cool ;O
 
 i mightt come out rude, shy or nervous so uhhhhhhhh yah,,,
