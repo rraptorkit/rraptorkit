@@ -8,6 +8,9 @@ $\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh,,,}}$
 
 <summary>𝒊𝒏𝒇𝒐 𝒐𝒇 𝒊𝒏𝒕 𝒏 𝒔𝒕𝒖𝒇𝒇</summary>
 21+ and -13 iwc 
+
+
+
 int freely, im cool with it, heck, encourage it! - unless i have dniuf
 ^^^ i do not friend others that quick btw
 
