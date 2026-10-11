@@ -24,15 +24,21 @@ i allow inspo also ! ! friends allowed heavy inspo x)
 
 <summary>𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔</summary>
 I LOVE LOVE LOVE JJK, OVERWATCH AND WARRIOR CATS
-other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, aot, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, lotm, death note, black clover, jjba, aj, undertale/deltarune. this will expand btw im in AAALOOOT of fandoms...
+
+
+other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, aot, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, lotm, death note, black clover, jjba, aj, undertale/deltarune. this will expand btw im in AAALOOOT of fandoms
+
 
 
 music i like is metal/nu-metal, rap/hip-hop, romantic goth, experimental, grunge and rock
+
 specific bands/artists i listen to is joost klein, gezebelle gaburgably, system of a down, limp bizkit, panchiko, stomach book, metallica, korn, linkin park, nirvana, gorillaz n alot more that aren't listed here
+
 
 
 i also draw, animate and write stories !  
 i really REALLY like biology and paleontology
+
 
 
 my favorite character is yuta from jjk..... ....trustme (i also REALLY REALLY like yutamaki)
