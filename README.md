@@ -7,11 +7,13 @@ $\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh,,,}}$
 <details>
 
 <summary>𝒊𝒏𝒇𝒐 𝒐𝒇 𝒊𝒏𝒕 𝒏 𝒔𝒕𝒖𝒇𝒇</summary>
+21+ and -13 iwc 
 int freely, im cool with it, heck, encourage it! - unless i have dniuf
-^^^ i do not friend others that quick btw , but sometimes i will if i think you r super cool ;O
+^^^ i do not friend others that quick btw
 
-i mightt come out rude, shy or nervous so uhhhhhhhh yah,,,
-i allow inspo also ! ! 
+i mightt come out rude, shy or nervous so uhhhhhhhh yah,,, i also sometimes can be dry or maybe my demeanour changes and it's probably because i am overwhelmed or so, sorry about tha T_T
+
+i allow inspo also ! ! friends allowed heavy inspo x)
 
 </details>
 
@@ -19,17 +21,18 @@ i allow inspo also ! !
 
 <summary>𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔</summary>
 I LOVE LOVE LOVE JJK, OVERWATCH AND WARRIOR CATS
-other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, aot, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, lotm, death note, black clover, jjba, aj.
+other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, aot, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, lotm, death note, black clover, jjba, aj, undertale/deltarune. this will expand btw im in AAALOOOT of fandoms...
 
 
-music i like is metal/nu-metal, romantic goth, experimental (like stomach book and gezebelle) and rock
+music i like is metal/nu-metal, rap/hip-hop, romantic goth, experimental, grunge and rock
+specific bands/artists i listen to is joost klein, gezebelle gaburgably, system of a down, limp bizkit, panchiko, stomach book, metallica, korn, linkin park, nirvana, gorillaz n alot more that aren't listed here
 
 
-i also draw, animate and write stories haaaaa 
+i also draw, animate and write stories !  
 i really REALLY like biology and paleontology
 
 
-my favorite character is yuta from jjk............... haaa....trustme (i also REALLY REALLY like yutamaki)
+my favorite character is yuta from jjk..... ....trustme (i also REALLY REALLY like yutamaki)
 ☆
 
 </details>
