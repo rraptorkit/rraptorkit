@@ -30,6 +30,8 @@ I LOVE LOVE LOVE JJK, OVERWATCH AND WARRIOR CATS
 
 other stuff i enjoy are mlp, wof, minecraft, jp/w, httyd, fnaf, aot, kpdh, ddlc, overwatch, alnst/zomst, rw, invincible, final fantasy, lotm, death note, black clover, jjba, aj, undertale/deltarune. this will expand btw im in AAALOOOT of fandoms
 
+if you see me cosplaying as something i didnt list here it's probably because im not really apart of the fandom
+
 
 
 music i like is metal/nu-metal, rap/hip-hop, romantic goth, experimental, grunge and rock
