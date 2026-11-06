@@ -36,7 +36,7 @@ if you see me cosplaying as something i didnt list here it's probably because im
 
 music i like is metal/nu-metal, rap/hip-hop, romantic goth, experimental, grunge and rock
 
-specific bands/artists i listen to is joost klein, gezebelle gaburgably, system of a down, limp bizkit, panchiko, stomach book, metallica, korn, linkin park, nirvana, gorillaz n alot more that aren't listed here
+specific bands/artists i listen to is joost klein, gezebelle gaburgably, system of a down, limp bizkit, panchiko, stomach book, metallica, korn, linkin park, nirvana, gorillaz, mitski n alot more that aren't listed here
 
 
 
