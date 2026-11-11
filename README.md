@@ -41,7 +41,7 @@ specific bands/artists i listen to is joost klein, gezebelle gaburgably, system 
 
 
 i also draw, animate and write stories !  
-i really REALLY like biology and paleontology. my favorite animals/family are felidae, bay cats, vultures, harpy eagles, theropods, maip macrothorax and a lot more
+i really REALLY like biology and paleontology. my favorite animals/family are felidae (snow leopard and tiger <3), bay cats, vultures, harpy eagles, theropods, maip macrothorax and a lot more
 
 
 
