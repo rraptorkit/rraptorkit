@@ -1,6 +1,5 @@
 # raptorkit
 
-i also will draw my own pfp idk whne ahahhahha
 
 
 
