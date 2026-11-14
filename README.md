@@ -1,7 +1,5 @@
 # raptorkit
 
-$\color{#c6c8eb}{\textsf{ineed to work on this ouuaagaghhh,,,}}$
-
 i also will draw my own pfp idk whne ahahhahha
 
 
