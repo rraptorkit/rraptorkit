@@ -3,6 +3,8 @@
 
 wqertyujdnbrsgvare tw5gtrsdfg123456789765 ergthyduytm,,,,,,,,,,,,,,,,,,,,,.,jh gfwrsdbgfnhteyrhterwqe w4rtq3rgeshrgndfsraeradcyutavgdefwhbueiokgpkmds hyu
 
+vvvvvvvvvv
+
 <details>
 
 <summary>𝒊𝒏𝒇𝒐 𝒐𝒇 𝒊𝒏𝒕 𝒏 𝒔𝒕𝒖𝒇𝒇</summary>
@@ -46,6 +48,8 @@ my favorite character is yuta from jjk..... ....trustme (i also REALLY REALLY li
 ☆
 
 </details>
+
+^^^^^^^^^^^^^^^
 
 check out [strawpage](https://raptorkitpt.straw.page/) for more info
 
