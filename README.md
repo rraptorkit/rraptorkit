@@ -1,7 +1,7 @@
 # raptorkit
 
 
-
+wqertyujdnbrsgvare tw5gtrsdfg123456789765 ergthyduytm,,,,,,,,,,,,,,,,,,,,,.,jh gfwrsdbgfnhteyrhterwqe w4rtq3rgeshrgndfsraeradcyutavgdefwhbueiokgpkmds hyu
 
 <details>
 
@@ -48,5 +48,7 @@ my favorite character is yuta from jjk..... ....trustme (i also REALLY REALLY li
 </details>
 
 check out [strawpage](https://raptorkitpt.straw.page/) for more info
+
+If Yuta has a million fans, then I am one of them. If Yuta has ten fans, then I am one of them. If Yuta has only one fan then that is me. If Yuta has no fans, then that means I am no longer on earth. If the world is against Yuta, then I am against the world. (is this a MANGO MANGO😈 reference 😱😱 Chat! This is a MANGO MANGO😈 reference 🤣🤣🤣. Boi, you won the Internet meme of the day 😂🫱.)
 
 
